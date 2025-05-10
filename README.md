@@ -1,4 +1,4 @@
-# プライバシーポリシー
+# プライバシーポリシー(https://tanaka-ryoya.github.io/16types-chat-app_privacy-policy/)
 
 最終更新日: 2025年4月25日
 
